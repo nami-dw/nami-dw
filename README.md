@@ -1,12 +1,12 @@
 # Hello! I'm Namiroh Dewi Utami 👋
 
-I have experience as an online shop admin and am active in various organizational activities. I am interested in a career in digital administration and customer service, with a focus on efficiency, polite communication, and work accuracy.
+I have experience as an online shop administrator and am active in various organizational activities. I am interested in a career in digital administration and customer service, with a focus on efficiency, polite communication, and work accuracy.
 
 ---
 
 ## 🧠 Experience & Projects
 
-### 💼 Online Shop Admin (2019–2020)
+### 💼 Online Shop Administrator (2019–2020)
 - Manage orders from marketplaces and WhatsApp
 - Input daily stock data and create simple reports
 - Handle customer complaints and inquiries
