@@ -42,5 +42,9 @@ I have experience as an online shop administrator and am active in various organ
 
 ---
 
+[**CERTIFICATE**](https://drive.google.com/drive/folders/1lVZgX5vrwEWNz6cTBgHvwJ7hBFE9TS3Y)
+
+---
+
 ## 🚀 Career Goals
 I aspire to grow professionally as a **Customer Service Specialist** or **Administrative Assistant**, either online or in a modern startup/tech environment.
